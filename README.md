@@ -1,2 +1,2 @@
 # Info.
-Github don't delete this!
+I deleted this 
